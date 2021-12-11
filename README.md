@@ -1,0 +1,1 @@
+# smart-promotion-of-tourism
